@@ -4,4 +4,4 @@
 - [Dayana196](https://github.com/Dayana196)
 
 ## Autores de paz 
-- [Camper]()
+- [Twidied](https://github.com/Twidied)
